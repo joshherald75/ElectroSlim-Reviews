@@ -106,4 +106,7 @@ For those interested, it’s important to remember that weight loss and health a
 
 ElectroSlim’s innovative approach to weight loss through bioelectric stimulation could be a game-changer for those in need of an efficient, convenient option. Whether used as a stand-alone device or alongside light physical activity, it offers an adaptable solution for many health and fitness needs.
 
+(https://github.com/joshherald75/sugar-defender-24-blood-sugar-control-drop/blob/main/README.md)
+(https://github.com/joshherald75/ElectroSlim-Reviews/blob/main/README.md)
+
 
